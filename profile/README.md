@@ -1,4 +1,4 @@
 # Christian (chrsolr) Soler
 
-#### Archives and other randomn stuff
+#### Archives and other random stuff
 Find old projects and trash!!! ;)
